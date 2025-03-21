@@ -1,4 +1,4 @@
-                                                                             🔥 AI-Powered Chrome Extension
+                                                               🔥 AI-Powered Chrome Extension
 
 
 
